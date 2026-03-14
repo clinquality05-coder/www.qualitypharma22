@@ -1,1 +1,1 @@
-# www.qualitypharma22.netlify.app
+# www.qualitypharma22
